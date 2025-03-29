@@ -1,7 +1,7 @@
 # Call-of-duty-cheats
 this is a free to use call of duty warzone Cheat
 These Cheats Where made By 1 Person 
-IT had 
+IT has 
 ESP 
 Aimbot/Triggerbot
 Unlock All
